@@ -1,1 +1,1 @@
-https://www.figma.com/design/WAQAMP39ZyNmaT7ffz0wI0/SAKAN-App---DEPI?node-id=2-2&t=jMxMIa6jtME7v51k-1
+https://www.figma.com/design/SW9ohgtcYuJnvHwcj5e5iX/SAKAN---Team-Project--DEPI-?node-id=0-1&t=XHFVMAHFcn8Yf5C5-1
